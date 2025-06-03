@@ -2,7 +2,7 @@
 - 👀 I’m interested in cyber security 
 - 🌱 I’m currently learning a lot 
 - 💞️ I’m looking to collaborate on any project related to cyber security 
-- 📫 How to reach me on x @_em_oche https://x.com/_em_oche
+- 📫 How to reach me on x @ANON_em_NG [ https://x.com/_em_oche](https://x.com/ANON_em_NG)
 - ⚡ Fun fact: ... I'm a rogue hacker 😈
 
 <!---
